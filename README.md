@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kalma123 I'm 19 yrs old this 2022
+- 👋 Hi, I’m @Nick RYan I'm 19 yrs old this 2022
 - 👀 I’m interested in gaming and tasting tasty foods
 - 🌱 I’m currently learning web developing and wish to learn game development
 - 💞️ I’m looking to collaborate ...
